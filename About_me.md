@@ -1,0 +1,1 @@
+# *I hate technology..I am a noob*
